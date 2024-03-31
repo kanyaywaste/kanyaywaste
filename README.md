@@ -1,1 +1,1 @@
-practicing Human, Software Engineer and artist.
+practicing Human, Techie and Artist.
